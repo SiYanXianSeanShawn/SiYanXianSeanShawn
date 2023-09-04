@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Yan
+- 👋 Hi, I’m Si
 - 👀 I’m interested in piano
 - 🌱 I’m currently learning piano
 - 💞️ I’m looking to collaborate on piano
